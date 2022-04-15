@@ -2,8 +2,12 @@
 
 ![龙王ai680智能分析软件 狮王ai400智能分析软件 麒麟ai800智能分析软件，2022年51劳动节钜惠促销强势来袭！](https://raw.githubusercontent.com/lionkingwin/51-promotion/main/202251promotion.jpg)
 
-## 龙王ai680智能分析软件 狮王ai400智能分析软件 麒麟ai800智能分析软件 🛠劳动节钜惠促销强势来袭！
+## 活动详情
+
+龙王ai680智能分析软件 狮王ai400智能分析软件 麒麟ai800智能分析软件 🛠劳动节钜惠促销强势来袭！
+### 狮王AI400
 狮王到手价: 💰6666
+![](https://raw.githubusercontent.com/lionkingwin/51-promotion/main/swai400.png)
 龙王到手价: 💰12800
 麒麟到手价: 💰13500
 超长活动时间: 
