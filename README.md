@@ -1,3 +1,5 @@
+![](https://raw.githubusercontent.com/lionkingwin/51-promotion/main/202251promotion.jpg)
+
 # 龙王ai680智能分析软件 狮王ai400智能分析软件 麒麟ai800智能分析软件 🛠劳动节钜惠促销强势来袭！
 狮王到手价: 💰6666
 龙王到手价: 💰12800
