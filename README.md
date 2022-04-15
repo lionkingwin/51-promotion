@@ -32,14 +32,14 @@
 
 [官方 telegram 频道](https://t.me/LionkingAI)
 
-[自助购买机器人 1](https://t.me/Baccarataibot)
+[官方自助购买机器人 1](https://t.me/Baccarataibot)
 
-[自助购买机器人 2](https://t.me/LongWangAiBot)
+[官方自助购买机器人 2](https://t.me/LongWangAiBot)
 
-[telegram 客服 1](https://t.me/longwangai65)
+[官方 telegram 客服 1](https://t.me/longwangai65)
 
-[telegram 客服 2](https://t.me/longwangai68)
+[官方 telegram 客服 2](https://t.me/longwangai68)
 
-[售后客服](https://t.me/LwswAfterSale)
+[官方售后客服](https://t.me/LwswAfterSale)
 
 [广州狮王科技 - 官方网站](https://www.lionkingai.com)
