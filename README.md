@@ -28,4 +28,16 @@
 
 ## 联系方式
 
-telegram 
+[官方 telegram 频道](https://t.me/LionkingAI)
+
+[自助购买机器人 1](https://t.me/Baccarataibot)
+
+[自助购买机器人 2](https://t.me/LongWangAiBot)
+
+[telegram 客服 1](https://t.me/longwangai65)
+
+[telegram 客服 2](https://t.me/longwangai68)
+
+[售后客服](https://t.me/LwswAfterSale)
+
+[官网](https://www.lionkingai.com)
